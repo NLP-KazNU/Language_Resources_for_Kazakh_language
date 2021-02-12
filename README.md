@@ -1,0 +1,1 @@
+# Language_Resources_for_Kazakh_language
